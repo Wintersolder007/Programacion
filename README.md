@@ -1,1 +1,1 @@
-ctgbjklpllkjhgzsx vbnjmk,l
+Clase
